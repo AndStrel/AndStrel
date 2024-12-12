@@ -16,7 +16,6 @@
 - **Телефон:** +7 (915) 225-0064  
 - **Email:** [andstrelnikov@outlook.com](mailto:andstrelnikov@outlook.com)  
 - **Telegram:** [@xoz9ih](https://t.me/xoz9ih)  
-- **Локация:** Москва, готов к переезду и командировкам.  
 
 ---
 

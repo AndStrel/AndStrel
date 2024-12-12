@@ -17,7 +17,6 @@
 - **Email:** [andstrelnikov@outlook.com](mailto:andstrelnikov@outlook.com)  
 - **Telegram:** [@xoz9ih](https://t.me/xoz9ih)  
 - **Локация:** Москва, готов к переезду и командировкам.  
-- **GitHub Pages:** [andrei-strelnikov.github.io](https://andrei-strelnikov.github.io)
 
 ---
 
